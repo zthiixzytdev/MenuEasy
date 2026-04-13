@@ -1,1 +1,2 @@
-# MenuEasy
+by: zthiixzyt
+MenuEasy – All Rights Reserved
